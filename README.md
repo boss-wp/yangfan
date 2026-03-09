@@ -2,13 +2,11 @@
 
 最新地址：[yftg1.com](https://yftg1.com/register?code=o60AZIA3)
 
-备用地址1：[yf9p8.net](https://yf9p8.net/register?code=o60AZIA3)
+备用地址1：[yangfanhome.com](https://yangfanhome.com/register?code=o60AZIA3)
 
-备用地址2：[yangfanhome.com](https://yangfanhome.com/register?code=o60AZIA3)
+备用地址2：[yfn42.net](https://yawtt.net/register?code=o60AZIA3)
 
-备用地址3：[yfn42.net](https://yawtt.net/register?code=o60AZIA3)
-
-备用地址4：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
+备用地址3：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
 
 ---
 
