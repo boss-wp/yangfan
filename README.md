@@ -1,12 +1,10 @@
 # 扬帆云机场官方网址
 
-最新地址：[yftg1.com](https://yftg1.com/register?code=o60AZIA3)
+最新地址：[点击进入 ml.yfqz1.net](https://ml.yfqz1.net/register?code=o60AZIA3)
 
 备用地址1：[yangfanhome.com](https://yangfanhome.com/register?code=o60AZIA3)
 
-备用地址2：[yfn42.net](https://yawtt.net/register?code=o60AZIA3)
-
-备用地址3：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
+备用地址2：[yangfanyy.net](https://yaftt.net/register?code=o60AZIA3)
 
 ---
 
@@ -20,7 +18,7 @@
 
 🎉 **限时 7 折优惠活动** 🎉
 
-- **优惠码：** `618`  
+- **优惠码：** `yf6189`  
 - **适用范围：** 新老用户均可使用  
 - **优惠说明：** 选择年付套餐即可享受 7 折优惠
 
