@@ -1,6 +1,6 @@
 # 扬帆云机场官方网址
 
-最新地址：[点击进入 ml.yfqz1.net](https://ml.yfqz1.net/register?code=o60AZIA3)
+最新地址：[点击进入 yfynez01.net](https://yfynez01.net/register?code=o60AZIA3)
 
 备用地址1：[yangfanhome.com](https://yangfanhome.com/register?code=o60AZIA3)
 
